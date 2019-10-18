@@ -1,6 +1,6 @@
 # Entry 1
 
-Websites are widely used around us and they provide people with a great way to source for information. I’ve been searching for various topics to build on my ideas for the freedom project. I wanted to do something related to the science side of STEM, so I decided to crowdsource with my peers. I discovered multiple topics that stood out to me and I ended up choosing a topic that is more relatable among people. The topic that I decided on was Polysomnography, which is the study of sleep.  
+Websites are widely used around us and they provide people with a great way to source for information. I’ve been searching for various topics to build on my ideas for the freedom project. I wanted to do something related to the science side of STEM, so I decided to crowdsource with my peers. I discovered multiple topics that stood out to me and I ended up choosing a topic that is more relatable among people. The topic that I decided on was polysomnography, which is the study of sleep.  
 
 Since the school year has only begun, it may be hard for many students to adjust back to their learning environment. This may cause their sleeping schedule to be a bit funky. 
 By informing others about why sleep is so important to an individual’s health, they can reflect on their actions to create a better change for themselves. Using my sourcing skills I found websites that can help me create an informational website. Sites like  
